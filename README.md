@@ -1,2 +1,0 @@
-# tashak
-tfydkfhj,gyuj
